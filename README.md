@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CarloRossini
+- 👀 I’m not interested
+- 🌱 I’m not currently learning
+- 💞️ I’m not looking to collaborate
+- 📫 You can't reach me
